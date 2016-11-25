@@ -1,1 +1,3 @@
 # bludogram
+FUCK YOU BOY~
+TOKI WO TOMARE
